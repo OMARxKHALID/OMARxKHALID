@@ -6,4 +6,4 @@
 
 💞️ I’m looking to collaborate on exciting web projects that require my expertise in full-stack development, backend systems, and machine learning.
 
-📫 You can reach me via linkedin/Instagram.
+📫 You can connect with me on LinkedIn or Instagram, or reach me via email at mirxaumar1212@gmail.com.
